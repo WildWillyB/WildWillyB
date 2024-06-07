@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on my first project learning to code
 - 📫 How to reach me wfbray@gmail.com  
 - 😄 Pronouns: He/Him/Apache Attack Helicopter
-- ⚡ Fun fact: I once spent a night out in Scottsdale in a VIP room with Michael Jordan sitting to my left and Emmitt Smith to my right.  It was all because I grew up with the daughter of the guy who signed him at Nike and when I through out his name he invited me to join them.
+- ⚡ Fun fact: I once spent a night out in Scottsdale in a VIP room with Michael Jordan sitting to my left and Emmitt Smith to my right.  It was all because I grew up with the daughter of the guy who signed him at Nike and when I through out his name he invited me to join them.  I learned MJs favorite drink is Heineken and the night got crazier when Mike Tyson asked to join the party!
 
 <!---
 WildWillyB/WildWillyB is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
